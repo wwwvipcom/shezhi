@@ -1,2 +1,2 @@
 ﻿# 英雄联盟
-http://t.me/wwwvipcom?index.html
+http://t.me/wwwvipcom?wwwvipcom.html
